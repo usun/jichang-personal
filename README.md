@@ -29,7 +29,7 @@
 
 ## NiceCloud（经济稳定）
 
-2026 非常受欢迎的机场推荐---奈丝云 [NiceCloud](https://nicecloud.cyou/register?aff=lBM0BUEN)，包含众多稳定高速冷门机场节点。油管、飞机、脸书你想去哪里？都可以~
+2026 非常受欢迎的机场推荐---奈丝云 [NiceCloud](https://nicecloud.org/register?code=lBM0BUEN)，包含众多稳定高速冷门机场节点。油管、飞机、脸书你想去哪里？都可以~
 
 AI玩家的性价比之选：Claude的逻辑能力、GPT的世界知识、Gemini的长文本处理、Midjourney的绘图审美……这些“生产力怪兽”都可以拥有。印度、德国和土耳其节点超级稳定~
 
@@ -42,13 +42,13 @@ NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数�
 完美支持ChatGPT与Tiktok、Netflix、Disney、HULU、HBO、TVB、动画疯等国外流媒体视频，能够很好地满足大多数场景的应用落地和用户需求，是性价比很高的翻墙梯子，也是近期机场推荐 和梯子推荐榜前三。
 
 **官网地址**
-[NiceCloud](https://nicecloud.cyou/register?aff=lBM0BUEN)
+[NiceCloud](https://nicecloud.org/register?code=lBM0BUEN)
 
-* [官网备用一](https://nicecloud.me/register?aff=lBM0BUEN)
-* [官网备用二](https://nicecloud.co/register?aff=lBM0BUEN)
-* [官网备用三](https://nicecloud.cyou/register?aff=lBM0BUEN)
+* [官网备用一](https://nicecloud.me/register?code=lBM0BUEN)
+* [官网备用二](https://nicecloud.co/register?code=lBM0BUEN)
+* [官网备用三](https://nicecloud.cyou/register?code=lBM0BUEN)
 
-注册别忘了邀请码，[lBM0BUEN](https://nicecloud.cyou/register?aff=lBM0BUEN)，享充值折扣，以官方活动为准。
+注册别忘了邀请码，[lBM0BUEN](https://nicecloud.org/register?code=lBM0BUEN)，享充值折扣，以官方活动为准。
 
 **机场特点**
 * 流量充足，定价偏低，属于便宜的机场梯子；
@@ -63,7 +63,7 @@ NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数�
 
 **可选套餐**
 
-耐思云机场套餐定价灵活，从月付16.99元到43.99元（**[优惠码]NICECLOUD**），均可支持流媒体解锁，能够满足绝大部分的应用落地与不同的用户需求，更针对轻量翻墙用户提供永久有效流量包，属于极高性价比机场梯子。
+耐思云机场套餐定价灵活，从月付16.99元到43.99元（**优惠码:NICECLOUD**），均可支持流媒体解锁，能够满足绝大部分的应用落地与不同的用户需求，更针对轻量翻墙用户提供永久有效流量包，属于极高性价比机场梯子。
 
 ![](assets/Pasted%20image%2020260516234221.png)
 ![](assets/Pasted%20image%2020260516234248.png)
